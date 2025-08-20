@@ -1,2 +1,2 @@
 # belajar
-jjjjj
+bisa ni
